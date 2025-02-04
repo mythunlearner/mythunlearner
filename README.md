@@ -5,4 +5,4 @@
 💞️ I’m looking to collaborate on frontend projects and tutorials.  
 📫 How to reach me: learntechpassion@gmail.com  
 😄 Pronouns: He/Him  
-⚡ Fun fact: I love Driving!
+⚡ Fun fact:  I thrive on networking! Engaging with others in the tech community inspires me to learn and grow every day
